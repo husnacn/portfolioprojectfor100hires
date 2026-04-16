@@ -16,7 +16,7 @@ LinkedIn Organic Content Strategy for B2B SaaS
 
 1. Justin Welsh
 2. Lara Acosta
-3. Richard van der Blom
+3. Morgan J Ingram
 4. Chris Walker
 5. Dave Gerhardt
 6. Adam Robinson
