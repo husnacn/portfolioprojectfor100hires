@@ -2,8 +2,11 @@
 
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_not-all-proof-is-created-equal-heres-how-activity-7449792938512891905-pOd2?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Not all proof is created equal.
 
 Here’s how to rank yours:
@@ -60,8 +63,11 @@ Makes sense, right?
 
 ## Post 2
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_your-buyers-brain-is-lazy-thats-why-your-activity-7449430967091499008-2sz_?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Your buyer’s brain is lazy. That’s why your positioning can’t be.
 
 Have you lost work to someone you’re objectively better than? 
@@ -101,8 +107,11 @@ PS: I write about the psychology behind ownable ideas every week in my Unignorab
 
 ## Post 3
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_who-comes-to-mind-when-you-hear-start-with-activity-7447631573165731841-wFmS?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Who comes to mind when you hear “start with why?”
 
 How about “inbound marketing”? Or “solopreneurship”?
@@ -121,8 +130,11 @@ Give the podcast a listen here: [https://lnkd.in/e4W7_qvd]
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_ideas-are-currency-idea-owners-get-rich-activity-7447277702882947074-l0E_?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Ideas are currency.
 Idea owners get rich.
 
@@ -130,8 +142,11 @@ Idea owners get rich.
 
 ## Post 5
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_fck-staying-consistent-consistency-activity-7446927432621756416-fGTw?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 F*ck "staying consistent."
 
 
@@ -146,16 +161,22 @@ Own one.
 
 ## Post 6
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_if-your-message-isnt-clear-enough-to-repeat-activity-7446148959909277696-HeAs?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 If your message isn’t clear enough to repeat and compelling enough to bookmark… it won’t spread.
 
 ---
 
 ## Post 7
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_i-opened-4-spots-to-work-with-my-11-in-april-activity-7445440015511261184-NFbM?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I opened 4 spots to work with my 1:1 in April... and got 103 applications. Then I panicked...
 
 I had no system to qualify applicants. No way to review 103 individual profiles and figure out who might actually be the best fit for my new offer, the Ownable Idea Intensive. 
@@ -210,8 +231,11 @@ P.S. This post isn’t sponsored by Grantbot. I was just really impressed with t
 
 ## Post 8
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_differentiated-thinking-is-hard-won-through-activity-7445088432147755008-JKtb?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Differentiated thinking is hard won through action. 
 
 If a person hasn’t really done anything themselves—they've just analyzed others’ wins or been along for the ride but never drove the bus—they rarely have a real POV. 
@@ -226,8 +250,11 @@ Without proof that your ownable idea is *earned*… people keep scrolling.
 
 ## Post 9
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_sick-of-being-ignored-the-fix-isnt-posting-activity-7444721459551277056-ffrq?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Sick of being ignored?
 
 The fix isn't posting more.
@@ -244,8 +271,11 @@ Become unignorable.
 
 ## Post 10
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/katebour_this-is-what-full-service-agencies-will-look-activity-7444352477761753088-pH6Y?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 THIS is what full-service agencies will look like to clients in a few years. Yuck. (But there’s another option.)
 
 There are two types of businesses: mustard businesses or sandwich businesses.
