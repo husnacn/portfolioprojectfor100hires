@@ -1,7 +1,10 @@
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_i-have-access-to-the-biggest-brands-in-the-ugcPost-7450128104758472705-r-z4?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I have access to the biggest brands in the world. But I only choose Bosnian brands for my events.
 
 (this is a behind the scenes look)
@@ -36,8 +39,11 @@ Wanna come to Bosnia? 😊
 
 ## Post 2
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_linkedin-gave-you-a-platform-to-impact-peoples-activity-7449765767035789313-XUBx?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 LinkedIn gave you a platform to impact people's lives. Beyond just business. So let me say this:
 
 Double down on “what always works”.
@@ -70,8 +76,11 @@ P.S. Ask me anything in the comments! I'll respond to at least 200+ of you. I lo
 
 ## Post 3
 **Date:** April 13, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_this-lady-made-my-mom-cry-she-told-her-activity-7449403358693478400-WH_7?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 This lady made my mom cry. She told her:
 
 "Your son saved my life in more ways than you know. He is the reason my daughters are now in Ivy League schools. And why I am where I am in life. I needed to thank you in person for giving birth to him." ❤️
@@ -100,8 +109,11 @@ P.S. Should I visit India next?
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_if-i-only-had-1-hour-for-linkedin-every-day-activity-7447953833940697089-ft_z?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 If I only had 1 hour for LinkedIn every day, this is how I'd structure it for the best possible results:
 
 20 minutes:
@@ -128,8 +140,11 @@ P.S. Personally, I do TRIPLE the above because I get a lot of comments daily, an
 
 ## Post 5
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_i-dont-sell-courses-i-coach-so-i-invited-activity-7447591420464521216-yKmD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I don't sell courses. I coach.
 
 So I invited Lara Acosta to Bosnia to coach 50+ LinkedIn creators with me. In person!
@@ -154,8 +169,11 @@ P.S. We recorded this at my International Burch University, where I also taught 
 
 ## Post 6
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_the-next-time-someone-mentions-the-phrase-activity-7447229047979343872-nfo_?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 The next time someone mentions the phrase "LinkedIn vanity metrics", I'll show them this photo.
 
 My community members are here in Sarajevo this week, and they have showered me with gifts, pastries, clothes, and cool stuff from 20+ countries.
@@ -187,8 +205,11 @@ P.S. What's the greatest gift you've ever received?
 
 ## Post 7
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_80-people-27-countries-1-city-this-is-activity-7446867296029007872-WVbd?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 80 people. 27 countries. 1 city.
 
 This is why Link Up is untouchable.
@@ -231,8 +252,11 @@ P.S. Nice to be back on LinkedIn after 5 days. Now you know why I was gone. How 
 
 ## Post 8
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_every-time-i-do-a-linkedin-live-we-break-activity-7442895476070436864-DjYw?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Every time I do a LinkedIn Live, we break records.
 
 This one? I'm coaching people live.
@@ -263,8 +287,11 @@ P.S. This Live will come with LOTS of surprises. ❤️
 
 ## Post 9
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_10-years-ago-today-i-retired-from-teaching-activity-7444692361445687297-Dbat?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 10 years ago today, I retired from teaching.
 
 "We'll double your salary if you stay."
@@ -304,8 +331,11 @@ P.S. Had I never retired, I never would've taken this online thing seriously. Ev
 ---
 ## Post 10
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/alicjasmin_in-the-last-5-years-my-life-completely-changed-activity-7444329937668407296-zMPi?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 In the last 5 years, my life completely changed.
 
 (I wish this post could time travel back)
