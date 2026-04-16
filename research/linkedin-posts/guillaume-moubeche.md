@@ -1,7 +1,10 @@
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_ive-invested-millions-of-in-secondaries-activity-7450070643108229120-WQ7m?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I've invested millions of $ in secondaries and I've never been more bullish than I'm right now on Anthropic. 
 
 The numbers first.
@@ -49,8 +52,11 @@ If you work on tech secondaries and want to chat, my DMs are open.
 
 ## Post 2
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_0-to-2-unicorns-bootstrap-vs-250m-vc-activity-7448346989416747008-KmqZ?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Most founders pick a lane.
 
 Bootstrap or raise. 
@@ -89,8 +95,11 @@ Some of his answers surprised me.
 
 ## Post 3
 **Date:** April 9, 2029
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_i-was-raised-thinking-that-money-was-something-activity-7447908246373322752-lB35?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I was raised thinking that Money was something you worked for, not something that worked for you.
 
 My grandfather immigrated to France with empty pockets.
@@ -151,8 +160,11 @@ Never trust anyone whose fee goes up when your complexity goes up.
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_never-coded-a-line-now-at-a-66b-unicorn-activity-7445743043049312256-fkmD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 $6.6 billion valuation. 
 
 $100M ARR in 8 months. 
@@ -196,8 +208,11 @@ Lazar has a view. It's worth hearing.
 
 ## Post 5
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_the-private-market-industry-has-a-dirty-secret-activity-7445354589048184832-faUy?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 The private market industry has a dirty secret 👇
 
 The less you understand what you're buying, the more money someone else is making.
@@ -250,8 +265,11 @@ Only the fees do.
 
 ## Post 6
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_the-15-day-pivot-that-saved-a-13b-company-activity-7443562343340351489-KbYS?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Imagine that you're doing more than $100M in ARR. 
 
 That your company is one of the most successful SaaS companies in the world.
@@ -290,8 +308,11 @@ Enjoy ✌️
 
 ## Post 7
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_building-odoos-american-war-machine-wilfried-activity-7440677639373123585-C9td?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Everyone says that "price" = "value" - but that's not always true...
 
 In a super competitive market, price can also be a great differentiator to serve underserved segments (typically SMBs).
@@ -318,8 +339,11 @@ If you're a european company trying to scale in the US, you should listen to it 
 
 ## Post 8
 **Date:** March 19, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_i-made-30-early-stage-investments-as-an-activity-7439969465598926848-hqSs?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I made 30+ early stage investments as an angel. Here's what nobody explained to me.
 
 When you write a check for a seed round, you feel like an investor.
@@ -358,8 +382,11 @@ If you’re active in late stage private tech, my DMs are open! Always happy to 
 
 ## Post 9
 **Date:** March 16, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_revolut-is-currently-valued-at-100b-activity-7439220926086520832-M0VT?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Revolut is currently valued at $100B+. 
 
 Here’s why I think it could become a trillion dollar company:
@@ -431,8 +458,11 @@ Because the moment they do, they cannibalize everything they've built.
 
 ## Post 10
 **Date:** March 16, 2026
+
 **URL:** [https://www.linkedin.com/posts/guillaume-moubeche-a026541b2_this-week-on-billions-anish-acharya-activity-7438160716169379840-X-Be?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Most VCs have never run a company.
 
 Anish Acharya has built two, sold both (one to Google + one to Credit Karma), and then joined Andreessen Horowitz as General Partner.
