@@ -1,7 +1,12 @@
+# Morgan J Ingram — LinkedIn Posts
+
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_this-ai-strategy-helped-me-book-5-target-activity-7449810720759787521-cXGx?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 This AI strategy helped me book 5 target accounts last month and it all started with the careers page.
 
 Leaders.. think about this one.. a company's careers page gives you everything you need to connect the dots. 
@@ -30,8 +35,11 @@ P.S. I set up the full Claude project workflow so your team can emulate it in 3 
 
 ## Post 2
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_allow-me-to-re-introduce-myself-my-name-activity-7449452039849541632-zqzO?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Allow me to re-introduce myself.
  
 My name is Morgan J to the Ingram.
@@ -73,8 +81,11 @@ P.S. What's your origin story? Drop it below.
 
 ## Post 3
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_this-one-claude-prompt-replaced-3-hours-of-activity-7447618009076199424-ja23?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 This one Claude prompt replaced 3 hours of buyer research for every SDR/AE team I work with down to 5 minutes.
 
 I timed it.. so no lies here. 
@@ -113,8 +124,11 @@ P.S. I set up the full Claude project workflow so your team can copy it in 2 min
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_a-rep-i-coached-last-month-booked-a-meeting-activity-7447268226683789312-ow5R?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 A rep I coached last month booked a meeting in 15 minutes using one Sales Nav filter. Here's the exact play.
  
 I ran a session with an SDR team selling into ENT accounts and asked how they prioritize new prospects in Sales Nav. Most of them said "I just scroll until I see someone that might be a good prospect."
@@ -155,8 +169,11 @@ P.S. Want my other Sales Nav plays? DM me NAV and I'll send the full kit.
 
 ## Post 5
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_15-things-i-learned-in-japan-that-i-still-activity-7446893232522735616-SEE5?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 15 things I learned in Japan that I still do today.
 
  1. Float tanks. 
@@ -187,8 +204,11 @@ P.S.S. Never challenge a sumo or samurai...
 
 ## Post 6
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_i-am-seeing-something-across-every-sdrae-activity-7445451991104798720-mZUl?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I am seeing something across every SDR/AE team booking meetings right now. They all have one thing in common. It has nothing to do with their AI stack, their sequencing tool, or their prompt library.
 
 They're deeply connected to themselves and how they show up. And that shows up in every conversation they have because they can connect the dots.
@@ -249,8 +269,11 @@ P.S. Am I the only one seeing this right now or maybe people have other opinions
 
 ## Post 7
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_an-sdr-took-my-social-selling-system-to-book-activity-7444739948081016832-uzBg?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 An SDR took my social selling system to book 17 meetings in one month. Here is the 5-step process you can emulate.
 
 (Share this in your Slack group)
@@ -327,8 +350,11 @@ Sierra Arnold followed this process to book 17 meetings... 10 outbound opportuni
 
 ## Post 8
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_i-caught-myself-doing-something-last-week-activity-7444377532302336000-_sDA?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I caught myself doing something last week that scared me. Was struggling with a personal problem.. and instead of solving it myself.. my first instinct was to open Claude and ask it what to say.
 
 Which is wild.. because I was like wait I am starting to outsource my thinking.
@@ -372,8 +398,11 @@ P.S. Has anyone else caught themselves doing this? I can't be the only one...
 
 ## Post 9
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_apollopartner-activity-7442916307513188352-N4QA?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 My new AI prompt built a full multichannel outreach campaign that finds your best fit client in minutes that makes you sound human. 
 
 Here is the prompt I put into Apollo AI Assistant:
@@ -418,8 +447,11 @@ P.S. Speaking of proven.. If you want to dig into the Apollo AI Assistant.. I wo
 
 ## Post 10
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/morganjingramamp_im-watching-us-create-an-entire-generation-activity-7442566288687902720-aL7I?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I'm watching us create an entire generation of B2B sales reps who can write AI prompts but can't tell you why their buyer should care. And it's bothering me.
 
 I am team AI. When used right it's awesome... Yet when I speak to most leaders they say their teams are "doing AI" but the reps have no context on why they're using it.
