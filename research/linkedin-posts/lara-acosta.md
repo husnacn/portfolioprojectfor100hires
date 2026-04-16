@@ -1,7 +1,12 @@
+# Lara Acosta — LinkedIn Posts
+
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_my-parents-came-from-nothing-and-still-gave-activity-7450120653682225152-M6_6?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 my parents came from nothing and still gave me everything.
 
 this milestone is for them. 
@@ -14,8 +19,11 @@ ps: what is that 1 big goal you’d like to celebrate with your parents this yea
 
 ## Post 2
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_i-just-made-it-to-forbes-30-under-30-this-activity-7449772123763560448-6ft_?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I JUST MADE IT TO FORBES 30 UNDER 30!
 
 This is your reminder that no goal is ever too "BIG".
@@ -55,8 +63,11 @@ WE DID IT!!!
 
 ## Post 3
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_you-dont-need-algorithm-hacks-to-grow-on-activity-7449418737713238016-8dep?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 You don't need algorithm hacks to grow on LinkedIn.
 
 I spent the last 90 days testing every growth hack I could find. Here's what actually works:
@@ -125,8 +136,11 @@ Join my FREE 2-Day masterclass tomorrow showing you how you how to build a 1-per
 
 ## Post 4
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_my-biggest-prediction-of-2026-the-future-activity-7448311011213946881-30hy?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 My biggest prediction of 2026: the future winners will build one-person businesses on LinkedIn. 
 
 You don't need an office.
@@ -165,8 +179,11 @@ PS: I'm bringing on a special guest, any guesses? Comment below!
 
 ## Post 5
 **Date:** April 12, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_next-stop-in-my-speaking-tour-birmingham-activity-7448682519371218944-Rlzv?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Next stop in my speaking tour: Birmingham! 
 
 So far we've covered croatia, new york, LA, Bosnia, and many more cities across the globe. 
@@ -191,8 +208,11 @@ Grab your ticket here [https://lnkd.in/e4taJs79]
 
 ## Post 6
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_this-is-a-dream-come-true-im-speaking-activity-7447971389334024192-J-ID?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 This is a dream come true... I'm speaking at Cannes! 
 
 I've seen my favorite entrepreneurs speak at it over the years, and always wondered if I'd ever be able to go.
@@ -217,8 +237,11 @@ Tag brands you'll like to see us work with and if you're going comment below - l
 
 ## Post 7
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_if-youre-feeling-overwhelmed-right-now-activity-7447235508570591232-Cyzi?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 If you’re feeling overwhelmed right now, listen to this. 
 
 You're not bad at things. You're just new at them. 
@@ -250,8 +273,11 @@ PS: I built an entire blueprint for you to get started with your 1 idea and exec
 
 ## Post 8
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_over-the-weekend-in-front-of-80-people-activity-7446870927834877952-RUkP?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Over the weekend, in front of 80+ people, I shared my most important piece of advice. Everyone clapped.
 
 You need to stop being humble. 
@@ -287,8 +313,11 @@ Repost ♻️ this to inspire others to stop being humble. And get to where they
 
 ## Post 9
 **Date:** April 8, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_weve-just-released-the-ultimate-playbook-activity-7445789995124088832-kASB?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 We've just released the ultimate playbook. What's working, what's dead, how to win in 2026 on LinkedIn.
 
 Every Sunday, you'll get exclusive access to it (for free):
@@ -321,9 +350,12 @@ P.S. You'll also unlock 4 free gifts instantly, including prompts for viral post
 ---
 
 ## Post 10
-**Date:** April 2. 2026
+**Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/laraacostar_hubspotmediapartner-ad-activity-7445062477630865408--Tv6?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 My best hire is a Gen-Z. She runs my entire life.
 
 And honestly, yesterday I thought she'd leave me.
@@ -368,6 +400,6 @@ I'll be on your inbox VERY soon now!
 
 Check Hubspot out here: [https://lnkd.in/eEpFeQiS]
 
-HubSpot hashtag#HubSpotMediaPartner hashtag#Ad
+#HubSpotMediaPartner #Ad
 
 ---
