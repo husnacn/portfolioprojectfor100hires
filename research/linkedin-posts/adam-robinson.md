@@ -1,15 +1,21 @@
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_the-ultimate-goal-of-starting-a-company-isnt-activity-7449879119661666304-Hoo4?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 The ultimate goal of starting a company isn't to be rich, it's to bow to no one.
 
 ---
 
 ## Post 2
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_will-mctighe-went-from-3000-to-400000-linkedin-activity-7449536001334501377-OMag?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Will McTighe went from 3,000 to 400,000 LinkedIn followers in 20 months.
 
 That is INSANE.
@@ -24,14 +30,17 @@ We're going LIVE tomorrow! 👇
 
 Tuesday @ 3pm ET 
 
-Join us here: https://lnkd.in/gs-Yyc4p
+Join us here: [https://lnkd.in/gs-Yyc4p]
 
 ---
 
 ## Post 3
 **Date:** April 12, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_i-have-24-stars-on-glassdoor-but-over-the-activity-7448790811904868352-OTbD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I have 2.4 stars on Glassdoor. But over the last year, we've had near-zero voluntary employee attrition. Here's how I retain top talent:
 
 1.  Focus on providing intellectual, interpersonal, and financial capital.
@@ -70,8 +79,11 @@ What did I miss?
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_i-just-got-off-the-phone-with-a-massive-clay-activity-7447352061077336064-KaEz?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I just got off the phone with a massive Clay agency (who you know). Here’s the crazy thing - he didn’t renew Clay because he didn’t know what to use the credits for!!!
 
 TWO WORDS: CLAUDE CODE.
@@ -119,8 +131,11 @@ PS - if anybody you know cares about this stuff, tag them.
 
 ## Post 5
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_im-thrilled-to-announce-that-rb2b-just-crossed-activity-7445528673232879618-7kT5?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I’m THRILLED to announce that RB2B just crossed $8m ARR! Last year we let AI run RB2B for 7 days. This year we’re going to make that 7 months! HERE’S THE BREAKDOWN:
 
 The Challenge: 
@@ -152,7 +167,9 @@ Thoughts?
 
 ## Post 6
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_10-signs-you-are-doing-well-in-life-1-activity-7444777733252866048-GyNN?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
 10 signs you are doing well in life: 
 
@@ -173,8 +190,11 @@ Thoughts?
 
 ## Post 7
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_last-week-i-took-a-demo-with-an-ai-sales-activity-7444480465077710851-t7BY?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Last week I took a demo with an AI sales rep. It joined a live call, shared its screen, and walked me through real functioning software in real time. If you're selling commoditized SaaS, this is the future of B2B sales 👇
 
 No scheduling link and no discovery call to "qualify" me first.
@@ -208,8 +228,11 @@ Join us here: [https://lnkd.in/gs-Yyc4p]
 
 ## Post 8
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_if-10kmo-is-life-changing-money-for-you-activity-7443713366327554048-opN1?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 If $10k/mo is life-changing money for you, NOW is your moment. 
 
 Sam perfectly articulated what we are about to see in EVERY market. 
@@ -244,8 +267,11 @@ P.S. If you want to know why SaaS stocks are getting smoked, please refer to wha
 
 ## Post 9
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_ai-is-making-ceos-delusional-this-video-activity-7443005519503589377-AVOS?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 AI is making CEO’s delusional. 
 
 
@@ -282,8 +308,11 @@ I would tag the guy who's video this is but I can't find him on Linkedin!
 
 ## Post 10
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/retentionadam_last-week-i-posted-that-i-dont-use-ai-in-activity-7442609496809627648-34jX?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Last week I posted that I don’t use AI in my day-to-day AT ALL. Everybody said “I thought you said RB2B was 3FTE and 100% AI!?!” Here’s what I do (and what AI does) at my company, and why people are confused: 
 
 First of all, we DID let AI run RB2B for a week in August. 
