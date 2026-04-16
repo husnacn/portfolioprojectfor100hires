@@ -39,6 +39,7 @@ If you're looking for creative ways to do that, I send one short essay every Sat
 The good life is a lot easier than you think.
 
 Come join us in building one.
+
 ---
 
 ## Post 2
