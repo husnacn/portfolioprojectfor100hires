@@ -1,7 +1,10 @@
 ## Post 1
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_how-high-shall-we-sing-for-mic-check-sound-activity-7449461322779602944-4vlD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 How high shall we sing for mic check... SOUND ON for this one! 🎶
 
 I opened "Sister Act" this weekend, and because I'm a musical theater nerd and a marketing nerd, I do, in fact, have a bunch o' lessons to share at the intersection of these two passions 😀
@@ -62,8 +65,11 @@ The throughline for ALL of these lessons:
 
 ## Post 2
 **Date:** April 10, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_everything-i-want-to-say-has-already-been-activity-7448016828875997185-UV7X?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 "Everything I want to say has already been said... so why should I share?" 😳
 
 "I'm the ONLY person who has ever said this! It's MY idea and MY process!" 😤
@@ -94,8 +100,11 @@ Full episode: [https://lnkd.in/gve_YhGU]
 
 ## Post 3
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_tfw-activity-7447302263624220672-2qJc?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 #tfw you're one of the first to know about nerdy marketing news... 
 
 
@@ -109,8 +118,11 @@ INBOUND --> UNBOUND 🙌
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_doing-my-part-to-close-the-gap-between-the-activity-7445847619312119808-53sP?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Doing my part to close the gap between the AI hype cycle and the reality of the adoption cycle 💃
 
 Catch me hosting the Atlassian "Teamwork in an AI Era" event (peep the cameo in the promo video!), and hear from experts at Forrester, NVIDIA, and Adam Grant!
@@ -144,8 +156,11 @@ Watch on demand, for free: [https://lnkd.in/dvt45NUh?]
 
 ## Post 5
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_weve-gotten-incredibly-good-at-building-activity-7445115364486688769-SQ9L?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 "We've gotten incredibly good at building. We haven't gotten any better at knowing what deserves to exist." - Vassilena Valchanova
 
 I love the call-out about knowing what deserves to exist, but I'm a bit conflicted 😅
@@ -174,8 +189,11 @@ Comments = Content)
 
 ## Post 6
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_sometimes-adults-need-security-blankets-activity-7444390520157708289-4592?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Sometimes adults need security blankets, too! 😅
 
 I was advising on a video set for a marketing video recently, and our speaker was getting a little flustered.
@@ -214,8 +232,11 @@ So... next time you've got enough time to prep... hold a closed script for a few
 
 ## Post 7
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_psa-its-a-good-day-to-audit-your-automated-activity-7443303289640644609-03D8?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 PSA: It's a good day to audit your automated messages and sales outreach sequences...
 
 
@@ -250,8 +271,11 @@ So... Fridays are usually a little less meeting-heavy... maybe today is the day 
 
 ## Post 8
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_the-journey-has-never-been-linear-but-apparently-activity-7442584871799238656-p6Ti?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 The journey has NEVER been linear, but apparently we're pretending that AI suddenly made this true 🤦‍♀️
 
 NOPE.
@@ -282,8 +306,11 @@ Need help actually creating a journey that behaves like a playground? Grab a cop
 
 ## Post 9
 **Date:** March 26, 2026
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_we-should-not-be-celebrating-and-rewarding-activity-7440765971499220993-zNvm?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 🌶️ We should NOT be celebrating and rewarding "going above and beyond" 🌶️
 
 How often have you seen this type of praise:
@@ -331,8 +358,11 @@ How I approach this as a manager:
 
 ## Post 10
 **Date:** March 19, 2029
+
 **URL:** [https://www.linkedin.com/posts/ashleyfaus_youve-got-the-perfect-product-the-perfect-activity-7440041045515558912-w26-?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 You've got the PERFECT product.
 The PERFECT production setup.
 A PERFECT script.
