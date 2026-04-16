@@ -1,7 +1,10 @@
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_success-and-achievements-dont-make-imposter-activity-7449877213589708800-Dq6Q?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Success and achievements don't make imposter syndrome go away.
 
 The Fortune 500 executive getting imposter syndrome while preparing for a board meeting. They're Successful. Fully qualified. And still feel like they aren't ready for this level. 
@@ -52,8 +55,11 @@ Your next breakthrough in performance and life isn’t in a book, on a podcast, 
 
 ## Post 2
 **Date:** April 12, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_trying-to-kill-the-competition-is-actually-activity-7448796873781325824-aS-r?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Trying to kill the competition is actually killing you and your company.
 
 Like how popular people all smoked cigarettes while it was slowly killing them. It felt normal. It was socially celebrated. The damage was invisible until it wasn't.
@@ -92,8 +98,11 @@ But the leaders who upgrade this first will have an advantage that compounds in 
 
 ## Post 3
 **Date:** April 10, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_discipline-is-just-willpower-with-better-activity-7448003402065772545-Loks?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Discipline is just willpower with better branding.
 
 It's been glorified for decades. By influencers, leaders, and people blindly applying the philosophy of sports and war to personal and professional life.
@@ -132,8 +141,11 @@ The real sustainable, smooth, and effective approach is to upgrade your subconsc
 
 ## Post 4
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_every-category-creating-company-gets-called-activity-7447039628118872066-EVS3?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Every category-creating company gets called a scam before it gets called a category.
 
 Airbnb was dismissed as a liability nightmare by hotel chains. Who would let strangers sleep in their home? Now it's a $75 billion company that created the entire short-term rental category.
@@ -184,8 +196,11 @@ Block out the noise. Stay focused on your customers. Stay true to your vision.
 
 ## Post 5
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_imagine-trying-to-tell-gary-the-factory-worker-activity-7446230422101045248-2-z7?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Imagine trying to tell Gary the factory worker that he should learn to use a computer and make money with his brain. It's 1975. His plant just started implementing industrial automation.
 
 He's been working there for 22 years. Good wage. 20 more years and he retires with a pension.
@@ -224,8 +239,11 @@ And I get it. Saying this to a knowledge worker right now probably sounds just a
 
 ## Post 6
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Here are the 10 once-valuable advantages that are now rapidly declining in economic value:
 
 1. Memorizing information - Information is no longer a scarce resource. The market is repricing domain knowledge, and it's declining rapidly. Collecting more of it is no longer the sustainable advantage it once was. 
@@ -258,8 +276,11 @@ Want to create sustained advantages and command economic premiums in the future?
 
 ## Post 7
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_being-a-visionary-isnt-a-personality-trait-activity-7445450980059672576-aLkO?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Being a visionary isn’t a personality trait, it’s an internal capacity every human has. 
 
 Being creative isn’t a personality trait. It’s the natural expression when the subconscious programs blocking creativity are no longer running. 
@@ -306,8 +327,11 @@ And ironically, they are the 12 most important skills in the future of AI. They 
 
 ## Post 8
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_subconscious-programs-quietly-cap-your-potential-activity-7445097884070612992-Byxl?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Subconscious programs quietly cap your potential and steal your freedom. And most people aren't aware it's there. 
 
 From ENCODED proprietary data (n=401), the most common subconscious program for high-performing humans is:
@@ -362,8 +386,11 @@ __
 
 ## Post 9
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_the-soft-skills-once-considered-nice-to-have-activity-7444796777956036608-WIrA?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 The "soft skills" once considered nice-to-have have now become the hardest and most valuable. 
 
 Hardest to acquire. You don't build these capacities through traditional learning methods. You don't get an advantage because your parents got you into Wharton. 
@@ -390,8 +417,11 @@ The skills once considered nice-to-have, optional, or a personal development sid
 
 ## Post 10
 **Date:** April 2, 2026
+
 **URL:** [https://www.linkedin.com/posts/chriswalker171_you-can-read-every-book-about-confidence-activity-7444732875947651073-cZz0?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 You can read every book about confidence and still not trust yourself. 
 
 You can study every framework on decision-making and still freeze when it matters.
