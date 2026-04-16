@@ -2,7 +2,9 @@
 
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_people-are-waking-up-to-what-living-a-good-activity-7450148013639114752-G23W?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content:**
 People are waking up to what living a "good life" actually means.
 
@@ -41,8 +43,11 @@ Come join us in building one.
 
 ## Post 2
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_most-people-dont-believe-that-its-possible-activity-7449785625802723328-x8g3?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content:**
+
 Most people don't believe that it's possible to own your time.
 
 They see someone doing it and assume they're either:
@@ -88,8 +93,11 @@ So, maybe today's the day you get started...
 ---
 ## Post 3
 **Date:** April 13, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_yesterday-was-my-12th-wedding-anniversary-activity-7449423407022231552-DtPO?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content:**
+
 Yesterday was my 12th wedding anniversary.
 
 I'm a very lucky man.
@@ -127,8 +135,11 @@ If you did...tell me about them below. Cheers.
 
 ## Post 4
 **Date:** April 12, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_lots-of-people-mean-well-when-they-give-you-activity-7449060848205185024-S2_U?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Lots of people mean well when they give you career advice.
 
 But, often, they're just projecting their own insecurities.
@@ -166,8 +177,11 @@ Activate to view larger image,
 
 ## Post 5
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_my-entire-family-worked-corporate-jobs-activity-7448698458699382784-L28h?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 My entire family worked corporate jobs.
 
 Salt of the earth people.
@@ -229,8 +243,11 @@ image credit: tiffinikilgore
 
 ## Post 6
 **Date:** April 10, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_whats-the-point-of-making-money-doing-something-activity-7448336076487753728-9kNS?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 What's the point of making money doing something you hate?
 
 I mean, I get it to some extent.
@@ -265,8 +282,11 @@ Join 180K+ here: [https://buff.ly/fpKsukt]
 
 # Post 7
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_build-your-life-first-build-your-work-second-activity-7447973686982139905-5IHI?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Build your life first.
 
 Build your work second.
@@ -307,8 +327,11 @@ Get Saturday's essay here: [https://buff.ly/fpKsukt]
 
 ## Post 8
 **Date:** April 8, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_you-have-to-be-willing-to-disrupt-the-status-activity-7447611296079855616-eyef?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 You have to be willing to disrupt the status quo to live a good life.
 
 And that means doing things that the average person doesn't do.
@@ -351,8 +374,11 @@ Get Saturday's essay: [https://buff.ly/ZMGy5w7]
 
 ## Post 9
 **Date:** April 7, 2026
+
 **URL** [https://www.linkedin.com/posts/justinwelsh_its-tough-to-succeed-if-you-cant-communicate-activity-7447248908168179712-2kxu?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 It's tough to succeed if you can't communicate.
 
 Here's how to do it well (in any situation):
@@ -399,8 +425,11 @@ Join free here: [https://buff.ly/rq3gVo9]
 
 ## Post 10
 **Date:** April 6, 2026
+
 **URL:** [https://www.linkedin.com/posts/justinwelsh_ive-made-choices-that-looked-reasonable-activity-7446886521934352384-dZsa?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I've made choices that looked reasonable.
 
 I've made choices that looked unreasonable.
