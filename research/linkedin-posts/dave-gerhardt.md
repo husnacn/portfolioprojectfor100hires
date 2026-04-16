@@ -1,7 +1,10 @@
 ## Post 1
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_i-think-were-building-the-best-community-activity-7450175699140775936-Qxpy?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 I think we're building the best community for B2B VPs / CMOs.
 
 This is something we launched last year and now have 60+ members in.
@@ -32,8 +35,11 @@ If this sounds interesting, you can apply here.
 
 ## Post 2
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_how-ramp-is-building-an-ai-pilled-marketing-activity-7449765600937148416-lE-R?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 How Ramp is building an AI-pilled marketing team
 
 A few months ago I met Drew Pinta (he supports marketing in a growth/data science at Ramp) on one of our webinars and thought he came across as an impressive guy. Useful and specific guidance, how to think about marketing strategy, and some key lessons they've learned at Ramp.
@@ -57,16 +63,22 @@ On my YouTube channel now and everywhere podcasts are these days.
 
 ## Post 3
 **Date:** April 15, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_apply-now-present-at-drive-2026-were-activity-7449956884876427264-QxmF?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Two weeks left to submit talks for Drive 2026 👀
 
 ---
 
 ## Post 4
 **Date:** April 14, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_you-think-all-this-marketing-ai-stuff-is-activity-7449461384137981953-WHxf?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 You think all this marketing AI stuff is cool. Wait until you see how the Little League Dads deploy Claude this season. 
 
 Contact information
@@ -89,8 +101,11 @@ I’m ready for the AI era.
 
 ## Post 5
 **Date:** April 13, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_please-help-me-support-this-very-important-activity-7448405930284826625-bGy9?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Please help me support this very important cause.
 
 I don't know what the solution is. Clearly not going to get in anyone's face about it.
@@ -103,8 +118,11 @@ Sidenote: I would ABSOLUTELY take a Claude implant in my brain rn if I could; ju
 
 ## Post 6
 **Date:** April 11, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_wanted-two-ai-pilled-marketers-for-exit-activity-7447988421773451264-75T3?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Wanted: two AI-pilled marketers for Exit Five. Timing: ASAP.
 
 We just opened two new jobs at Exit Five this morning:
@@ -131,8 +149,11 @@ First AI comment owes me 100 burpees.
 
 ## Post 7
 **Date:** April 10, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_hello-b2b-cmos-if-you-want-to-see-what-your-activity-7447627306975510528-20bt?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Hello B2B CMOs, if you want to see what your peers are doing with AI inside of their orgs right now...
 
 Not the 22 year old AI influencer (no disrespect; it's just that you wouldn't believe how much the complexity, security, risk profile etc. matters for a lot of these companies)
@@ -162,8 +183,11 @@ Register here:
 
 ## Post 8
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_all-great-marketers-have-this-one-thing-activity-7447291169455292416-voI6?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 All great marketers have this one thing: ________
 
 Katelyn Bourgoin says the best marketers find their one idea.
@@ -176,8 +200,11 @@ New podcast: [https://lnkd.in/dTbBFH5K]
 
 ## Post 9
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_apply-now-present-at-drive-2026-were-activity-7446936825618825217-SQFU?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 APPLY NOW! Present at Drive 2026. 
 
 We're taking submissions now to speak at our event in September.
@@ -206,8 +233,11 @@ PS. Tag someone who is doing something interesting and should submit :)
 
 ## Post 10
 **Date:** April 9, 2026
+
 **URL:** [https://www.linkedin.com/posts/davegerhardt_can-someone-help-me-get-a-job-at-anthropic-activity-7446199270199685120-lxic?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE]
+
 **Content**
+
 Can someone help me get a job at Anthropic ??
 
 I’m pretty good at marketing. Can be a decent teammate. Work remotely in VT though. But will make up for it.
