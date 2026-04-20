@@ -60,7 +60,7 @@
 
   ---
 
-  ## Ashley Faus
+## Ashley Faus
 
 ### 🧩 Team Structure & Collaboration
 - Define clear roles and responsibilities to avoid confusion and inefficiency in team execution  
@@ -152,7 +152,7 @@
 
   ---
 
-  ## Chris Walker
+## Chris Walker
 
 ### 🧠 Subconscious & Identity (Core Theme)
 - Improve performance by training subconscious identity rather than relying on conscious effort or willpower  
