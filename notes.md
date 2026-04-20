@@ -149,3 +149,83 @@
 
 - Encourage recovery time after high-intensity work periods  
   (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+
+  ---
+
+  ## Chris Walker
+
+### 🧠 Subconscious & Identity (Core Theme)
+- Improve performance by training subconscious identity rather than relying on conscious effort or willpower  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 15.04.2026)
+
+- Behavior change is sustainable only when aligned with subconscious identity  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 10.04.2026)
+
+- Most decisions, emotions, and actions are driven by subconscious programs rather than conscious thinking  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+
+---
+
+### ⚡ Performance & Decision-Making
+- Avoid operating in constant competition or scarcity mindset, as it reduces clarity and decision quality  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 12.04.2026)
+
+- Improve decision-making by increasing internal clarity and reducing cognitive overload  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+- Execution without clear direction leads to wasted effort and poor outcomes  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+---
+
+### 🚫 Rejection of Traditional Approaches
+- Do not rely on discipline or willpower as primary drivers of performance improvement  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 10.04.2026)
+
+- Avoid overworking as a strategy, as it reduces creativity and long-term performance  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+- Do not depend on “best practices” as they may already be outdated  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+- Avoid outsourcing thinking and decision-making to external experts  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+---
+
+### 🤖 Future of Work & AI
+- Shift focus from knowledge-based skills to uniquely human capabilities (e.g., creativity, clarity, judgment)  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+
+- Recognize that AI reduces the value of domain knowledge and process execution  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+
+- Develop cross-domain thinking instead of specializing in a single area  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+---
+
+### 💡 Strategy & Innovation
+- Validate ideas based on real customer feedback rather than external criticism  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+- Ignore uninformed criticism when building new or category-defining products  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+---
+
+### 🌱 Personal Development Approach
+- Focus on training internal capacities (e.g., clarity, self-trust, creativity) rather than consuming more information  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+
+- Recognize that learning (books, courses) does not automatically translate into behavioral change  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+
+---
+
+### 🧭 Career & Positioning
+- Adapt to shifts in economic value by developing higher-level skills beyond current role requirements  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+
+- Prioritize deep skills and thinking ability over surface-level networking or credentials  
+  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
