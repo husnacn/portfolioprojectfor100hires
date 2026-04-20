@@ -1,7 +1,5 @@
 ## Ideas that repeat across experts
 
-These are high-confidence principles because multiple people converge on them from different angles.
-
 ### 1) Clarity > activity
 
 - **Adam**: define expectations, avoid “squirreling,” stick to quarterly plans
