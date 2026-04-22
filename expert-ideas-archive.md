@@ -156,76 +156,76 @@
 
 ### 🧠 Subconscious & Identity (Core Theme)
 - Improve performance by training subconscious identity rather than relying on conscious effort or willpower  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 15.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_success-and-achievements-dont-make-imposter-activity-7449877213589708800-Dq6Q, 15.04.2026)
 
 - Behavior change is sustainable only when aligned with subconscious identity  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 10.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_discipline-is-just-willpower-with-better-activity-7448003402065772545-Loks, 10.04.2026)
 
 - Most decisions, emotions, and actions are driven by subconscious programs rather than conscious thinking  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_subconscious-programs-quietly-cap-your-potential-activity-7445097884070612992-Byxl, 02.04.2026)
 
 ---
 
 ### ⚡ Performance & Decision-Making
 - Avoid operating in constant competition or scarcity mindset, as it reduces clarity and decision quality  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 12.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_trying-to-kill-the-competition-is-actually-activity-7448796873781325824-aS-r, 12.04.2026)
 
 - Improve decision-making by increasing internal clarity and reducing cognitive overload  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S, 09.04.2026)
 
 - Execution without clear direction leads to wasted effort and poor outcomes  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S, 09.04.2026)
 
 ---
 
 ### 🚫 Rejection of Traditional Approaches
 - Do not rely on discipline or willpower as primary drivers of performance improvement  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 10.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_discipline-is-just-willpower-with-better-activity-7448003402065772545-Loks, 10.04.2026)
 
 - Avoid overworking as a strategy, as it reduces creativity and long-term performance  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S, 09.04.2026)
 
 - Do not depend on “best practices” as they may already be outdated  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S, 09.04.2026)
 
 - Avoid outsourcing thinking and decision-making to external experts  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, hhttps://www.linkedin.com/posts/chriswalker171_here-are-the-10-once-valuable-advantages-activity-7445822779251240961-Ui5S, 09.04.2026)
 
 ---
 
 ### 🤖 Future of Work & AI
 - Shift focus from knowledge-based skills to uniquely human capabilities (e.g., creativity, clarity, judgment)  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_imagine-trying-to-tell-gary-the-factory-worker-activity-7446230422101045248-2-z7, 02.04.2026)
 
 - Recognize that AI reduces the value of domain knowledge and process execution  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_the-soft-skills-once-considered-nice-to-have-activity-7444796777956036608-WIrA, 02.04.2026)
 
 - Develop cross-domain thinking instead of specializing in a single area  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_imagine-trying-to-tell-gary-the-factory-worker-activity-7446230422101045248-2-z7, 09.04.2026)
 
 ---
 
 ### 💡 Strategy & Innovation
 - Validate ideas based on real customer feedback rather than external criticism  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_every-category-creating-company-gets-called-activity-7447039628118872066-EVS3, 09.04.2026)
 
 - Ignore uninformed criticism when building new or category-defining products  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_every-category-creating-company-gets-called-activity-7447039628118872066-EVS3, 09.04.2026)
 
 ---
 
 ### 🌱 Personal Development Approach
 - Focus on training internal capacities (e.g., clarity, self-trust, creativity) rather than consuming more information  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_being-a-visionary-isnt-a-personality-trait-activity-7445450980059672576-aLkO, 02.04.2026)
 
 - Recognize that learning (books, courses) does not automatically translate into behavioral change  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_being-a-visionary-isnt-a-personality-trait-activity-7445450980059672576-aLkO, 02.04.2026)
 
 ---
 
 ### 🧭 Career & Positioning
 - Adapt to shifts in economic value by developing higher-level skills beyond current role requirements  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_being-a-visionary-isnt-a-personality-trait-activity-7445450980059672576-aLkO, 09.04.2026)
 
 - Prioritize deep skills and thinking ability over surface-level networking or credentials  
-  (source: Chris Walker, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Chris Walker, https://www.linkedin.com/posts/chriswalker171_being-a-visionary-isnt-a-personality-trait-activity-7445450980059672576-aLkO, 09.04.2026)
