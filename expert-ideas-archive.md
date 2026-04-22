@@ -64,91 +64,91 @@
 
 ### 🧩 Team Structure & Collaboration
 - Define clear roles and responsibilities to avoid confusion and inefficiency in team execution  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 14.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_how-high-shall-we-sing-for-mic-check-sound-activity-7449461322779602944-4vlD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 14.04.2026)
 
 - Centralize decision-making authority (e.g., one “director”) instead of allowing feedback from too many stakeholders  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 14.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_how-high-shall-we-sing-for-mic-check-sound-activity-7449461322779602944-4vlD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 14.04.2026)
 
 ---
 
 ### 📣 Communication & Alignment
 - Implement call-and-response communication rituals to ensure team-wide alignment and awareness  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 14.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_how-high-shall-we-sing-for-mic-check-sound-activity-7449461322779602944-4vlD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 14.04.2026)
 
 - Use clear framing language (e.g., “in my experience”) to communicate perspective and reduce conflict  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 10.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_everything-i-want-to-say-has-already-been-activity-7448016828875997185-UV7X?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 10.04.2026)
 
 ---
 
 ### 📅 Planning & Execution
 - Strictly follow pre-defined plans and avoid last-minute changes that disrupt execution  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 14.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_how-high-shall-we-sing-for-mic-check-sound-activity-7449461322779602944-4vlD?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 14.04.2026)
 
 - Add buffer time to timelines to accommodate experimentation and dependencies  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_doing-my-part-to-close-the-gap-between-the-activity-7445847619312119808-53sP?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 09.04.2026)
 
 - Conduct retrospectives after major projects to identify improvements  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_the-journey-has-never-been-linear-but-apparently-activity-7442584871799238656-p6Ti?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 26.03.2026)
 
 - Push back on low-priority, urgent requests that lack clear ROI  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_we-should-not-be-celebrating-and-rewarding-activity-7440765971499220993-zNvm?utm_source=share&utm_medium=member_desktop&rcm=ACoAABvCC-8BaIYJGZPLSBP-LrMAx45vUNX38eE, 26.03.2026)
 
 ---
 
 ### 🤖 AI Adoption & Workflow Integration
 - Integrate AI experimentation into existing workflows instead of treating it as a separate process  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_doing-my-part-to-close-the-gap-between-the-activity-7445847619312119808-53sP, 09.04.2026)
 
 - Start AI adoption with one clean, reliable dataset before scaling  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_doing-my-part-to-close-the-gap-between-the-activity-7445847619312119808-53sP, 09.04.2026)
 
 - Use collaborative problem-solving sessions (e.g., “Fix-it-Friday”) to scale AI knowledge across teams  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 09.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_doing-my-part-to-close-the-gap-between-the-activity-7445847619312119808-53sP, 09.04.2026)
 
 ---
 
 ### 🎯 Marketing Strategy & Customer Journey
 - Treat the customer journey as non-linear and design flexible experiences instead of rigid funnels  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_the-journey-has-never-been-linear-but-apparently-activity-7442584871799238656-p6Ti, 26.03.2026)
 
 - Focus on creating seamless and helpful experiences regardless of where the customer enters the journey  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_the-journey-has-never-been-linear-but-apparently-activity-7442584871799238656-p6Ti, 26.03.2026)
 
 ---
 
 ### 📊 Sales & Personalization
 - Regularly audit automated outreach systems to avoid sending irrelevant or duplicate messages  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_psa-its-a-good-day-to-audit-your-automated-activity-7443303289640644609-03D8, 02.04.2026)
 
 - Ensure personalization extends beyond tokens to actual customer context and relationship status  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_psa-its-a-good-day-to-audit-your-automated-activity-7443303289640644609-03D8, 02.04.2026)
 
 ---
 
 ### 🎤 Content & Presentation
 - Use physical cues (e.g., holding a script during practice) to improve confidence and delivery fluency  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_sometimes-adults-need-security-blankets-activity-7444390520157708289-4592, 02.04.2026)
 
 - Pair speech with physical movement (“blocking”) to improve memorization and delivery in presentations  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 19.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_youve-got-the-perfect-product-the-perfect-activity-7440041045515558912-w26-, 19.03.2026)
 
 ---
 
 ### ⚖️ Strategy & Creative Work
 - Balance profit-driven work with exploratory or creative work that may not have immediate ROI  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 02.04.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_weve-gotten-incredibly-good-at-building-activity-7445115364486688769-SQ9L, 02.04.2026)
 
 ---
 
 ### 🧑‍💼 Management & Team Health
 - Avoid normalizing overwork; repeated “hero efforts” indicate poor planning and resourcing  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_we-should-not-be-celebrating-and-rewarding-activity-7440765971499220993-zNvm, 26.03.2026)
 
 - Build trust by regularly discussing workload and capacity with team members  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_we-should-not-be-celebrating-and-rewarding-activity-7440765971499220993-zNvm, 26.03.2026)
 
 - Encourage recovery time after high-intensity work periods  
-  (source: Ashley Faus, https://www.linkedin.com/posts/... , 26.03.2026)
+  (source: Ashley Faus, https://www.linkedin.com/posts/ashleyfaus_we-should-not-be-celebrating-and-rewarding-activity-7440765971499220993-zNvm, 26.03.2026)
 
   ---
 
